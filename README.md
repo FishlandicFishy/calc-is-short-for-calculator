@@ -5,3 +5,5 @@ Was it *not* enough for you when they gaslighted you into thinking you've entere
 Have you gone so insane that you *really* want to relive that?
 
 Go ahead.
+
+*Undertale text box generated from [https://www.demirramon.com/generators/undertale_text_box_generator](https://www.demirramon.com/generators/undertale_text_box_generator).*
